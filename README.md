@@ -1,2 +1,2 @@
 # Hi , I'm Umer Islam Najar
-B.Tech AI/ML in Agriculture @ SKUAST-K  
+B.Tech AI/ML in Agriculture @ SKUAST-K × IIT Mandi
